@@ -1,2 +1,1 @@
-licence key
-username fati
+licencessss key
